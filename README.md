@@ -1,2 +1,1 @@
-# Whack-a-soup
 
